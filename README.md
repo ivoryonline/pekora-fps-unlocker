@@ -1,0 +1,1 @@
+# pekora-fps-unlocker
